@@ -1,1 +1,0 @@
-# kurtkozo.github.io
